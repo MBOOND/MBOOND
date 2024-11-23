@@ -1,5 +1,3 @@
-Here’s the same dark and fearsome tone, but in Arabic, crafted to convey the same power and intimidation:
-
 
 ---
 
